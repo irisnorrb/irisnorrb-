@@ -1,4 +1,4 @@
-# irisnorrb ★°⋆🎸๋࣭🎧⋆｡ 
+# irisnorrb ִִֶָ࣪☾.⋆🎸๋࣭🎧⋆｡ 
 
 this is my gift, my curse.
 who am i? i´m spiderman.
